@@ -1,4 +1,4 @@
- 👋 Hi, I’m @AndreaJanke
+Hi,I’m @AndreaJanke
 ANDREA JANKE Finest Accessories is a Frankfurt-based boutique creative agency specialized in brand communication, 
 Instagram-marketing & digital media management, photography/videography & layout compositions.
 Specialized in High-Fashion / Contemporary & Modern Art
